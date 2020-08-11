@@ -1,1 +1,0 @@
-# nmrprojects.github.io
